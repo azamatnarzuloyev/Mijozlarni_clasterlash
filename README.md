@@ -1,0 +1,1 @@
+# Mijozlarni_clasterlash
